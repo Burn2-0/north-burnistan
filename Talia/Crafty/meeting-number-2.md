@@ -2,23 +2,31 @@
  
  
 Thankfull Crafty basically has a handful of people on his friends list so the amount of editing in this is almost nothing. 
-All I am doing is highlighting anuything I said with = and what it was that was said that I am responding to with -.
+All I am doing is highlighting anuything I said with spacing and what it was that was said that I am responding to with spacing and a bullet point
 I should say I did over the course of the meeting hand around a note from Talia. I left iSkye till last as she was most likely to boot me for it.
 I had a thank you from two people. No one else reacted...
 That note had originally been for Leo but I tweaked some of the direct refernces. I will admit it's still quite pointed, I figured people who knew that they were no involved would work out that I was just sharing with everyone.
 
---------------------------------------------------------------------------------------------------------------------
+---
 As I arrive on the radio station they were talking about the fourth of July... I got a little confussed. 
---------------------------------------------------------------------------------------------------------------------
+---
 
 [08:57:16] iSkye Silvercloud (iskye.silverweb) entered the region (100.32 m).
+
 [08:57:16]  ღ Lïlÿ Vøn ℳᴀɢɪcღ (lilyvonschtupp) entered the region (89.26 m).
+
 [08:57:16] Gin (ginhama) entered the region (96.23 m).
+
 [08:57:16] Roliki (rolikoviekonki) entered the region (91.71 m).
+
 [08:57:16] Bar Tenk entered the region (89.39 m).
+
 [08:57:16] Bee (beekeeperwes) entered the region (85.40 m).
+
 [08:57:16] Shendara Destiny entered the region (104.28 m).
+
 You are now at Burn2, Burning Man- Deep Hole (129, 29, 24)
+
 [08:57:24] [Now playing: Doc Pomus - Hollywood Bed - Savoy Blues 1944 – 1994]
 [08:57:55] Bee (beekeeperwes) entered chat range (19.85 m).
 [08:57:57] Bar Tenk entered chat range (17.90 m).
@@ -34,9 +42,9 @@ You are now at Burn2, Burning Man- Deep Hole (129, 29, 24)
 [08:59:20] Shendara Destiny: Morning, Crafty
 [08:59:28] Gin (ginhama): great avi Shendara
 
-====================================================================================================================
+---
 [08:59:33] Crafty Hax: Hi ^^ Happy Fourth
-====================================================================================================================
+---
 
 [08:59:40] Shendara Destiny: Merci, Gin-chan
 [09:00:07] Gin (ginhama): Happy 4th Crafty
