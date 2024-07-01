@@ -707,7 +707,7 @@ https://www.burn2.org/conception-2024-whimsy/
 
 [10:05:29] iSkye Silvercloud (iskye.silverweb): hugs are always welcome
 
-
+![Inclusion](./inclusion.png)
 
 ---
 
@@ -917,7 +917,7 @@ https://www.burn2.org/conception-2024-whimsy/
 
 ---
 
-
+![Incl...Victed](./inc--victed.png)
 
 [10:14:16] [Second Life: Teleport completed from Burning Man- Deep Hole (214,30,24)]
 
