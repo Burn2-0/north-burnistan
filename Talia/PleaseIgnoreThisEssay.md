@@ -271,10 +271,34 @@ You want to see how many of these you can tick off?
 * [ ] Open Heart.
 * [ ] Open Mind.
 
+PPPS. Bonus Addon Mini Essay
 
+## How to weaponise a good thing.
 
+So Appreciations. Letting people know whern they have done a good thing, thanking them for it. How can I twist that so that it's a weapon?
 
+Well thankfully I don't need to you just need to sit through any of the meetings to see how it's done. On the surface it's a good thing sure but in a situation where people are restricted from talking on treat of a ban, are you going to publicy show gratitid to anyone that you perceive to be in the bad books of those who are holding the ban hammer? 
 
+No? so what do you do instead? You try win faovor from those with the ban hammer by picking anyone you know is in there good books.  Thereby rewarding those that are willing to kiss the ring and punishing those that don't. All this is is a method to solidify the power base of people who one minute might be actually singnig your praises:
 
+> "00:18	Leondra:	Talia	, I know you are brilliant	, and have phenomenal skills... ...Your effigy awesome and included things we have not had before."
 
+Next minute because you try stand up to them in something you know is right... You find yourself having to attend meetings via an alt... 
 
+(Community Standards breech btw Leo Disclosure, likewise iSkye more CS and GDPR breach when you shared that spreadsheet.)
+
+As an Alt which I know everyone knows is me. How often would I ever get any form of gratitude? I got some from my burn.. which was the first thing I was asked to do. I had said right when I first came back that I wouldn't volunteer to do anything but I would step in for anything if asked to. I wasn't exactly up for doing the effigy Burn.. Especially after Puddles had to step back for the event but I did the best i was able to given the circumstances and well Lets take Leo's review on this. 
+
+A big part of the issue is that there is not appropriate channels of communication. And I tend to have a lot of ideas and suggestions. So that ended up with my saying too much at meetings... of Ideas that weren't ready to face the e grilling they recieved. Then as time went on actual issues  and comp started to take president over everything else. Of coouse they were not approprioiate to bring up in a planning meeting either.  Now I know what you are going to say "But there is an official method for putting in complaints...", Fair there is.... How well did that go for me?
+
+One of the things I had permanently stuck om backlog was whatcould well have been the solution to most the issues. When I had been kickign the tires on this github org I had noticed it has many features specifically designed for situations like this. A feature request system with voting for example. This was a place where people could post half worked ideas and then people of the community could assist in developing the ideas and voting on them. That would mean that ideas could get developed by the community and cain commmnity supoport and if there was a quiet planing meeting those ideas could be picked up off the top of the list and added to the agenda Where they would enter the planning meetings with prior knowledge about and support from the community rather than what felt like dragons den or some kinda gladitorial arean. 
+
+And again. the results of peoples activities in the arena often wouldn't be what they thought but what they thought certain other people were thinking. If you want me to I can point out numerous occassions where people have said one thing and then upon hearing someone elses opion then have flipped there position. I  think this is what in part leads to iSkye's "Seeding" Even if she is unware of it occuring it definitely is, Again I can point to multiple example either where people say one thing hear skyes thinking and then hey presto they change their minds, the thing how ever that makes me fairly certasin she is aware that she exerts this control is from when i suggested the levels. After that I took the log and keeping the vertical time line in order I split the topic into different columns. It was initally to show how hard it was for me to keep up but then I noticed how her name always came in top 3 on every new topic. i.e. something new came up she made sure to let everyone know what posdition they should take.
+
+I am not trying to belittle anything people have done that did receive gratitudes as they did do though things and people should be gratful for them but imagine what would happen had someone out of the faovur of leo and iskye had done something worthwhile.. if they were stiil allowed onto the sim... if someoneknew what they were up to do you thing that someone would risk themselves to thank them and draw the dislike of the leads? Willingly place themselves in the path of the ban hammer just to thank someone for doing something worht while... course not. 
+
+So the gratiftued rewards anyone whose sucked up enough to have not angers Leo or iSkye. And then  anyone who has daed to think differenetly gets thanked with a lack of recognition...  This is how it's been weaponised and why it's a bad thing in it's current form. Honestly asked yourselves if you have ever thought to thank me for anything.... "But you don't do anything..." but how many things did I try to do? How many things did I have stuck in my back logged which got more jammed up when I was restricted to one item per meeting. As soon as i got restriced like that my bad thing level when from 33% where I would try soften the blow each side with something positive to 100% as usually the bad thing was more important than the good things. 
+
+SOo keep that in mind next time you are doing the gratitudes... it's a double edge sword look at who is being left out did they even cross your mind to thank?  I do always say that I don't critique something without providing a solution.... pick at random. 
+
+have 1, 2, 3 however many slots and then find a way to ake it truly random. Why is that better? becasue it's truly inclusive for starters if you made a mistep wiht those leads then all of a sudden you've lost any hope of getting any form of gratitude which I know is not the point... gifting you shouldn't expect anything in return. but the whole idea of having a Gratificationn designated time is the expectance of being thanked Or in some people s case the expectance of being notifcably ignored. So if you do have to have gratification sessions like that then do it random when no one is going there expecting backslaps or being ignore.... IT's a vehicle for so much bad shit and it's thoroughly against the 10 p in that form.
