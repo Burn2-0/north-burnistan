@@ -277,3 +277,5 @@ However what is far more likely is that she is going to continue to try ignore m
 * IF what I am saying has any truth to it at all, She has a lot to worry about. 
 
 The thing that everyone should keep in mind. Rangers operate purely on social capital. I.e. they are given their power by the participants. The current Ranger lead is running the social credit account into the red. 
+
+[https://gyazo.com/5983ae95ff8ae9c81f55b93ade37400e]
