@@ -103,6 +103,7 @@ It was my recounting a particularly  triggering situation for which I tried goto
     - I was trying to resist doing this... https://gyazo.com/56c36121f19ffe9e542ed2b8db1efd30
     - I got a single notecard in response to say my complaints would be looked into.
     - Please Check the Date of my Ban.
+    - Is it reasonable to consider that I was put in a place where I thought that the rules wouldn't be followed and I was in fear of following proper procedure?
     
  ---
  
@@ -204,9 +205,9 @@ Maybe writing up essay length notecard is not everyone's idea of good communicat
 * When I followed the CoC and finally issued an official complaint I had 1 notecard to confirm receipt.
     - 4 days later I received a Life Time Ban.
     - No official warning.
-    - No FLAME
-    - No 3 strikes
-    - straight  to the highest possible punishment possible (without alerting external authorities). 
+    - No FLAME.
+    - No suspension.
+    - Straight to the highest possible punishment possible (without alerting external authorities). 
 
 It's *"appreciated it's a disappointment"* but it's also assumed that *"your understanding and cooperation in this matter"* is a given and then finally *"we are willing to listen to any feedback you may have and provide further explanation if needed."*. 
 There has been an active policy to ignore me, people are recommended to abuse report and block me. 
