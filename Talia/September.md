@@ -258,8 +258,22 @@ In law there are 4 situations where no right to appeal is justifiable.
 
 The only one of the above that might apply in my case is "Frivolous Appeals". How exactly can my every single appeal I have attempted have been frivalous. 
 
-So this is my complaint... My ban was conducted by someone who should by the rules of the rangers and burners have been removed from her position, for each of the things I was accussed of I can present 3-4 points that she should be removed for. 
-If she is certain of her position in this. Then have her recuss herself and let this complaint run through the actual process for a complaint. 
-However what is far more likely is that she is going to continue to try ignore me, remember "Knowngly neglecting a big problem..." If this complaint is ignored... That in itself is reason to have her removed.
+So this is my complaint... My ban was conducted by someone who should by the rules of the rangers and burners have been removed from her position, for each of the things I was accussed of I can present 3-4 points that she should be removed for.
+
+* If she is certain of her position in this. Then have her recuss herself and let this complaint run through the actual process for a complaint. 
+
+* If this is a frivalous appeal then she has nothing to worry about and wouldn't have anything to worry about.
+
+* If she cares about Burners in general she'll realise this issue is not going to go away and the best thing to do is to actually resolve this.
+
+* If she follows ranger rules she'll step aside to let an investigation run.
+
+* If this is something she feels she can't deal with then she should kick it up the chain of command and call in actual rangers.
+
+However what is far more likely is that she is going to continue to try ignore me, remember "Knowngly neglecting a big problem..." 
+
+* If this complaint is ignored... That in itself is reason to have her removed.
+
+* IF what I am saying has any truth to it at all, She has a lot to worry about. 
 
 The thing that everyone should keep in mind. Rangers operate purely on social capital. I.e. they are given their power by the participants. The current Ranger lead is running the social credit account into the red. 
