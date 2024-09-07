@@ -122,20 +122,34 @@ It was my recounting a particularly  triggering situation for which I tried goto
 
 > Planning Meeting topic disruptions: On 5/19/24 Talia made multiple meeting topic requests to demand meeting focus of her choice which was the recent ban of DJ Puddles and to bring up an older ban on Shendara Destiny.
 
-No mention of Shen. My "Demands" were because I was consistently being ignored, and I had been rationed to a single agenda point per week. I didn't bring up any more than I had been rationed to and then had had ignored.
+No mention of Shen. My "Demands" were because I was consistently being ignored, and I had been rationed to a single agenda point per meet. I didn't bring up any more than I had been rationed to and then had had ignored. 
+
+Note: I have been limited in exactly how much I can self-express... how does that play with radical self-expression, Inclusivity, participation, etc. ?
+
+This point of my ban is because I self expressed and tried to participate too much.
 
 ---
 
 > [2024/05/19 09:07]  Talia Tokugawa: I would like to add my want for the agenda point about needing more info about puddles ban that was truncated at the end of last weeks meeting resumed.. And I would like my agenda Point that I had submitted for thursdays meeting that besides the automated response has not been acknowledged... That was Triage Survey... which I realised earlier today was the FL from FLAME. And I'd quite like to know why my agenda point submitted for today has not been acknowledged... That one was asking plan and simple if there was actually any point in my trying to submit them...  And that is my not bringing up the other agenda point not of my submission which I am fairly certain is definitely the least pleasant on that sits there ignored in the pool of unwanted agenda points.  Oh and Poll.
+> 
 > ...
+> 
 > Talia Tokugawa: I can add more if you want... but that is just the ones I've had missed for my ration of one per meet
+>
 > ...
+>
 > [2024/05/19 09:08]  Leondra Larsson: so your topic is a triage survey, Tallia?
+>
 > [2024/05/19 09:09]  Talia Tokugawa: No.. My TOPICS... More info about puddles.. cut short last sunday
+>
 > [2024/05/19 09:09]  Talia Tokugawa: then triage survey the topic ignored for thursday
+>
 > [2024/05/19 09:09]  Leondra Larsson: more about Puddles? then?
+>
 > [2024/05/19 09:09]  Leondra Larsson: ok
+>
 > ...
+>
 > [2024/05/19 09:09]  Talia Tokugawa: then todays topic is should I even bother attempting to add agenda points when they get ignored... 
 
 --- 
@@ -145,7 +159,11 @@ No mention of Shen. My "Demands" were because I was consistently being ignored, 
 ---
 
 ### Disruption to Community Harmony: 
+
 > Your actions have led to significant disruption and discomfort among other members of the Burn2 community. After previous warnings and attempts at resolution, the pattern of behavior persisted.
+
+* Previous warning**S**... I didn't receive a single official warning.
+* Attempts at resolution... When? How exactly is this even possible. The Issue that I was pissed about was the banning of Puddles. Previously in my Ban Notice I get accussed of bringing the ban of Puddles. How can there be attempts at resolution if I can't even talk about the topic I wanted to try resolve?
 
 ---
 
@@ -207,37 +225,52 @@ Maybe writing up essay length notecard is not everyone's idea of good communicat
     - No official warning.
     - No FLAME.
     - No suspension.
-    - Straight to the highest possible punishment possible (without alerting external authorities). 
+    - Straight to the highest possible punishment possible (without alerting external authorities).
+* Burn2 Ranger Guidelines:
+    - "We mediate, influence, and persuade rather than dictate, enforce or dominate."
+    - "Generally speaking, we try to intervene to the least degree possible in order to achieve whatever needs to be accomplished."
+    - "We defuse tense situations."
+    - "We don’t enforce anything!"
+    - "Banning avatars from the Burning Man sims (Estate bans) are very serious actions that happen very rarely on the Burning Man/BURN2 sims--an average of one or two new problem people per year--and only as an action of last resort, after a thorough investigation has taken place and after multiple mediation attempts and other interventions have taken place and failed."
 
 It's *"appreciated it's a disappointment"* but it's also assumed that *"your understanding and cooperation in this matter"* is a given and then finally *"we are willing to listen to any feedback you may have and provide further explanation if needed."*. 
 There has been an active policy to ignore me, people are recommended to abuse report and block me. 
-
-* One of the things I've tried in order to have this situation explained to me in the face of "Willing to listen" was spending numerous hours pretending to be a ranger instructor who had been promised by 
+One of the things I've tried in order to have this situation explained to me in the face of "Willing to listen" was spending numerous hours pretending to be a ranger instructor who had been promised by 
 certain leads that they were willing to learn and wouldn't interrupt me.That Led to the 8000 word notecard which by slowly distributing it to the community I managed to open communication with those.
 
-* The very public RIST Survey : 
+## Actual Complaints:
+
+1. The very public RIST Survey : 
     "I find the incessant attacks on 'certain' members appaling. The constant disregard and shutdown of ideas and helpful projects with heavy bias is also appalling. I have been in at least 4 meetings to see these actions on NON-Inclusiveness and dictatorship has prevailed. I once was smitten by burn2. I had a very very special burn in Octoberburn that was very personal to me, now that is tainted. If management does not resign or CHANGE their dictatorship, I believe this community will fail and the sim will go bye bye. For a group of adults to behave this way would make me give a warning to change or i'd pull the plug on the entire operation, seriously. I may be a new burner and not that versed in all the ins and outs, but that doesn't exclude me from feeling what i feel based on what I have witnessed 1st hand." ((I don't know who wrote this so I can't attribute it.))
   This is quite literally an accusation of bullying and harassment Is there an associated LSD (Location,Situation, Determination).
-* I made similar accusations numerous times.
-* I also have openly talked on the subject of depression and suicide.
-* I've also gotten myself into states of serious psychiatric distress.
-* I've talked about feeling like I am loosing control and will end up griefing Burn2. (I was seriously offering to give rangers training in dealing with me because they are woefully unprepared, I even made a fairly sneaky griefing device to show some Rangers.
-* I would say the violent ejection of me could be considered an assault as it was certainly non-consensual.
-* I have been told directly that an important ranger recommends  my muting and AR'ing. 
+2. I made similar accusations numerous times.
+3. I also have openly talked on the subject of depression and suicide.
+4. I've also gotten myself into states of serious psychiatric distress.
+5. I've talked about feeling like I am loosing control and will end up griefing Burn2. (I was seriously offering to give rangers training in dealing with me because they are woefully unprepared, I even made a fairly sneaky griefing device to show some Rangers.
+6. I would say the violent ejection of me could be considered an assault as it was certainly non-consensual.
+7. I have been told directly that an important ranger recommends  my muting and AR'ing. 
 
-Reason I bring up this list. These are all items that are "Must Report". A ranger that comes across any of these things needs to kick it up the chain of command.  I am fairly sure as the vast majority have not been looked into that these all got the ranger lead who determined not worth it.. The official ranger handbook determines "Must Reports" as so serious that the penalty for not filing is their removal from rangers. 
+Reason I bring up this list. These are all items that are "Must Report". A ranger that comes across any of these things needs to kick it up the chain of command.  I am fairly sure as the vast majority have not been looked into that these all got the ranger lead who determined not worth it... The official ranger handbook determines "Must Reports" as so serious that the penalty for not filing is their removal from rangers. 
+
+So Complaint number one. There is very selective reporting going on. Anything that could show the lead ranger in a bad light is being burried. This is not just against Ranger Guidelines it's actually dangerous. The reason the items are in the guidelines is to make sure no burner is left out. That they can get the support they need. To try to prevent anything to bad happening. It's not Leo's place to judge my psychiatric state. From a not she sent me... "I have run out of energy and the willingness to reason with you. I will not discuss any further.". Okay fair enough. So what is it a ranger should do at this point? Kick it sideways or up. The next sentence is very telling. "I will not discuss any further." So... No kicking it anywhere else. And "I will not..." 
 
 Code of Conduct... More things that are removing from rangers level issues. 
-* Losing self-control.
-* Misusing your special role or role abilities by throwing your weight around.
-* Making demands or making threats and acting unprofessionally.
-* Resorting to acts of humiliation or intimidation or taunting or mocking others.
-* Abusing the community’s trust.
 (I can provide numerous examples on all of these)
 
-* Terms of Service and Community Standards violations found to be true. (Can be seen in the minutes of planning meetings. Ranger Lead broke SL Community standard with disclosure.)
+* Losing self-control.
+* Misusing your special role or role abilities by throwing your weight around. (My Ban, Run a poll on how many people think I should have been banned.)
+* Making demands or making threats and acting unprofessionally. ("You are banned and You can't even appeal it...")
+* Resorting to acts of humiliation or intimidation or taunting or mocking others. (This one is a bit more tricky but there is a general air of holier than thou and condecension. e.g. from the notecard "To Talia, Reminders about what a ban means."
+> Hi, Talia,
+>
+> I, once again, get to be the harbinger of some explanations for you. I find it sad that you do not have other things to do than troll Burn2. You, and your alts, are banned from Burn2. That means you cannot access the regions or participate in meetings, communications, events, or other activities. Incident Reports, suggestions, voting, etc. from banned individuals and their alts, as always, will be ignored. As I have said before, I have run out of energy and the willingness to reason with you. I will not discuss any further. I am sorry that this was not more clearly and explicitly explained for you.
+> Leo
+)
+
+* Abusing the community’s trust. (I hope I don't need to point out that as a community we place our trust in the rangers to follow the rules...)
+* Terms of Service and Community Standards violations found to be true. (Can be seen in the minutes of planning meetings. Ranger Lead broke SL Community standards with disclosure.)
 * Assault or any other acts of violence. (My ban and then my treatment after.)
-* Knowingly neglecting a big problem. Alert others if you can’t deal with it! Yes, just kick it sideways. (I literally spent Hours in peoples IM educating them as to the way rangers should behave. The policy to ignore me was "Knowing Neglect" The problem was that I was right about what I was saying and therefore un-reportable. 
+* Knowingly neglecting a big problem. Alert others if you can’t deal with it! Yes, just kick it sideways. (I literally spent Hours in peoples IM educating them as to the way rangers should behave. The policy to ignore me was "Knowing Neglect" The problem was that I was right about what I was saying and therefore un-reportable.) 
 
 * Oh there is this as well... [![Image from Gyazo](https://i.gyazo.com/6f6251de3cf50e56a84f37351a2ccc50.jpg)](https://gyazo.com/6f6251de3cf50e56a84f37351a2ccc50) [https://gyazo.com/6f6251de3cf50e56a84f37351a2ccc50]
 
