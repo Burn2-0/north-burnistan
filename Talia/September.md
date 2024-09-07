@@ -247,7 +247,7 @@ There has been an active policy to ignore me, people are recommended to abuse re
 One of the things I've tried in order to have this situation explained to me in the face of "Willing to listen" was spending numerous hours pretending to be a ranger instructor who had been promised by 
 certain leads that they were willing to learn and wouldn't interrupt me.That Led to the 8000 word notecard which by slowly distributing it to the community I managed to open communication with those.
 
-## Actual Complaints:
+## Must Reports:
 
 1. The very public RIST Survey : 
     "I find the incessant attacks on 'certain' members appaling. The constant disregard and shutdown of ideas and helpful projects with heavy bias is also appalling. I have been in at least 4 meetings to see these actions on NON-Inclusiveness and dictatorship has prevailed. I once was smitten by burn2. I had a very very special burn in Octoberburn that was very personal to me, now that is tainted. If management does not resign or CHANGE their dictatorship, I believe this community will fail and the sim will go bye bye. For a group of adults to behave this way would make me give a warning to change or i'd pull the plug on the entire operation, seriously. I may be a new burner and not that versed in all the ins and outs, but that doesn't exclude me from feeling what i feel based on what I have witnessed 1st hand." ((I don't know who wrote this so I can't attribute it.))
@@ -261,9 +261,11 @@ certain leads that they were willing to learn and wouldn't interrupt me.That Led
 
 Reason I bring up this list. These are all items that are "Must Report". A ranger that comes across any of these things needs to kick it up the chain of command.  I am fairly sure as the vast majority have not been looked into that these all got the ranger lead who determined not worth it... The official ranger handbook determines "Must Reports" as so serious that the penalty for not filing is their removal from rangers. 
 
-So Complaint number one. There is very selective reporting going on. Anything that could show the lead ranger in a bad light is being burried. This is not just against Ranger Guidelines it's actually dangerous. The reason the items are in the guidelines is to make sure no burner is left out. That they can get the support they need. To try to prevent anything to bad happening. It's not Leo's place to judge my psychiatric state. From a not she sent me... "I have run out of energy and the willingness to reason with you. I will not discuss any further.". Okay fair enough. So what is it a ranger should do at this point? Kick it sideways or up. The next sentence is very telling. "I will not discuss any further." So... No kicking it anywhere else. And "I will not..." 
+So Complaint number one. There is very selective reporting going on. Anything that could show the lead ranger in a bad light is being burried. This is not just against Ranger Guidelines it's actually dangerous. The reason the items are in the guidelines is to make sure no burner is left out. That they can get the support they need. To try to prevent anything to bad happening. It's not Leo's place to judge my psychiatric state. From a note she sent me... "I have run out of energy and the willingness to reason with you. I will not discuss any further.". Okay fair enough. So what is it a ranger should do at this point? Kick it sideways or up. The next sentence is very telling. "I will not discuss any further." So... No kicking it anywhere else. And "I will not..." That is sounding very "All about you..."
 
-Code of Conduct... More things that are removing from rangers level issues. 
+## Code of Conduct... 
+
+### More things that are removing from rangers level issues. 
 (I can provide numerous examples on all of these)
 
 * Losing self-control.
@@ -279,7 +281,37 @@ Code of Conduct... More things that are removing from rangers level issues.
 * Abusing the community’s trust. (I hope I don't need to point out that as a community we place our trust in the rangers to follow the rules...)
 * Terms of Service and Community Standards violations found to be true. (Can be seen in the minutes of planning meetings. Ranger Lead broke SL Community standards with disclosure.)
 * Assault or any other acts of violence. (My ban and then my treatment after.)
-* Knowingly neglecting a big problem. Alert others if you can’t deal with it! Yes, just kick it sideways. (I literally spent Hours in peoples IM educating them as to the way rangers should behave. The policy to ignore me was "Knowing Neglect" The problem was that I was right about what I was saying and therefore un-reportable.) 
+* Knowingly neglecting a big problem. Alert others if you can’t deal with it! Yes, just kick it sideways. (I literally spent Hours in peoples IM educating them as to the way rangers should behave. The policy to ignore me was "Knowing Neglect" The problem was that I was right about what I was saying and therefore un-reportable.)
+
+## Bullying/Harrassment...
+
+As I am hitting up most the major sections here... 
+
+>“Bullying” or “harassment,” including “sexual harassment,” is conduct that meets all of the following criteria:
+>
+> * is reasonably perceived as being dehumanizing, intimidating, hostile, humiliating, threatening, or otherwise likely to evoke fear of physical harm or emotional distress;
+>   
+> * is directed at one or more participant;
+>   
+> * is conveyed through physical, verbal, technological or emotional means;
+>   
+> * substantially interferes with opportunities, benefits, or events of one or more participants;
+>   
+> * adversely affects the ability of a participant to participate in or benefit from BURN2’s events or activities by placing him/her in reasonable fear of harm, physical or virtual or by causing emotional distress; and,
+>   
+> * is based on a participant’s actual or perceived distinguishing characteristic (see above), or is based on an association with another participant who has or is perceived to have any of these characteristics.
+
+Soo. Dehumanizing, Humiliating, threatening and creating emotional distress... Check.
+
+Directed at one or more participants... Check.
+
+Is conveyed.... Check.
+
+Intefers with my opportunities, benefits or events... Check.
+
+Adversly affects my ability to participate... Check.
+
+That last one... Very subjective... Could be anything really. My experience, I've been repeatedly told to get help when I get upset about stuff. I am currently getting assessed for Neurodiversity. Either which way that plays out that doesn't look good. If I am not diagnosed ND then it's evidence of gaslighting someone into the position of thinking they have a neuological condition. If I am diagnosed.. then Check.
 
 * Oh there is this as well... [![Image from Gyazo](https://i.gyazo.com/6f6251de3cf50e56a84f37351a2ccc50.jpg)](https://gyazo.com/6f6251de3cf50e56a84f37351a2ccc50) [https://gyazo.com/6f6251de3cf50e56a84f37351a2ccc50]
 
@@ -288,7 +320,6 @@ Code of Conduct... More things that are removing from rangers level issues.
 The ranger lead, The person who should exemplify everything that it means to be a Burner break the basic principles of being a burner. She leads purely on the fear she creates by banning people that speak out against her. 
 If this were not the case why is she so scared of me. She would be able to publicly debate with me, without going silent and then runnning away. She would do what rangers do... She would communicate.
 
-I am going to file another complaint once I have finished this. This is to be the actual complaint as there is a limit on the number of characters I can add to an official complaint. 
 I do not see my ban as legitmate, I see myself as an illegitmately excluded Burner. 
 
 ### Appeal...
@@ -327,3 +358,14 @@ The thing that everyone should keep in mind. Rangers operate purely on social ca
 
 
 [![Image from Gyazo](https://i.gyazo.com/e7cb89c18b3676f6793c0eb0c392a509.png)](https://gyazo.com/e7cb89c18b3676f6793c0eb0c392a509)
+
+### Sorry 🙏
+
+I am well aware of how much upset this is causing. I apologise to anyone who have caught me in a particularily upset or angry place. I dislike being put in a place where that can happen. The Virtual Burn means a lot to me as do the principles and guidelines. It upsets me to see them perverted like they are being. It upsets me to be illegitimately excluded and marginalised. It's especially upsetting to have people trying to sweep this all under the carpet. In an ideal world... Rules would have been followed and this would have been resolved and that would have happened within a day or two of the causes of these issues. I have wanted this resolved since then... I have been the one attempting to communicate. I have experienced the same level of mediation as I did with my ban and so I find myself submitting another official complaint. I am well aware that Leo specifically called out that I couldn't complain given my ban. But hopefully... Someone sees sense and realises that I am not going to just roll over and play dead. That if this gets ignored I just start sending it to actual rangers.
+
+### One final point...
+
+Leads... Can I suggest you all work through the ten principles and see how they pertain to the leadership role. I was chatting with a couple of you and it was noted that people are needing permission to do things or being told "No"... Being a lead is a support role. You are there to enable people to achieve what they want. People have a place they want to go to. You should be pushing or pulling them towards that not trying to stop them. If you as a lead find yourself saying "no" to someone take a serious look at why you said it. 
+I am guessing most people are unaware of this. I do actually do a lot more than just bellyache over my situation. Even though I can't even step foot on the playa currently. I still do positive things for the Burn. e.g. after the RIST meeting, having been told that By-Laws were the only way to change anything I decided to write up some. I've shared these with the by-law team with permissiosn to borrow anything they might want to include. 
+
+[![Image from Gyazo](https://i.gyazo.com/9a1f730627e48ac36543dda788c43333.png)](https://gyazo.com/9a1f730627e48ac36543dda788c43333)
