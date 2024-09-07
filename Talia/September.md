@@ -168,9 +168,13 @@ This point of my ban is because I self expressed and tried to participate too mu
 ---
 
 Oh right, cause this has not happened before.... 
+
  As the saying goes, Takes two to Tango...
+ 
   And I think you'll find I was no where near the playa during any of the previous incidents/bans.
+  
     If the same thing keeps happening to you over and over maybe it's not them that is the problem.
+    
       Maybe.. just Maybe... It's you that is the problem.
 
 ---
