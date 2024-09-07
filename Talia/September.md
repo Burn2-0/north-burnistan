@@ -195,10 +195,15 @@ The Impact of Toxic Influencers on Communities (16 minute read) - [https://inten
 > "This is often the cycle:
 > 
 > A new person comes in.
+> 
 > They notice the abuse.
+> 
 > They try to do something.
+> 
 > The clique protects the abuser.
+> 
 > Everyone else is too tired to support, so they stay silent.
+> 
 > The new person, unsupported, retreats."
 
 I am well aware that I keep bringing the same thing up over and over. The reason for that is that I actually strongly believe in quite a few (most) parts of the rangers guidelines. In particular from Page 33 of the official BRC Rangers handbook.
