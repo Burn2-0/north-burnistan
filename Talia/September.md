@@ -282,3 +282,6 @@ The thing that everyone should keep in mind. Rangers operate purely on social ca
 
 
 [![Image from Gyazo](https://i.gyazo.com/5983ae95ff8ae9c81f55b93ade37400e.gif)](https://gyazo.com/5983ae95ff8ae9c81f55b93ade37400e)
+
+
+[![Image from Gyazo](https://i.gyazo.com/e7cb89c18b3676f6793c0eb0c392a509.png)](https://gyazo.com/e7cb89c18b3676f6793c0eb0c392a509)
