@@ -369,3 +369,19 @@ Leads... Can I suggest you all work through the ten principles and see how they 
 I am guessing most people are unaware of this. I do actually do a lot more than just bellyache over my situation. Even though I can't even step foot on the playa currently. I still do positive things for the Burn. e.g. after the RIST meeting, having been told that By-Laws were the only way to change anything I decided to write up some. I've shared these with the by-law team with permissiosn to borrow anything they might want to include. 
 
 [![Image from Gyazo](https://i.gyazo.com/9a1f730627e48ac36543dda788c43333.png)](https://gyazo.com/9a1f730627e48ac36543dda788c43333)
+
+### I just keep adding stuff...
+
+Had a conversation with a ranger yesterday... every single time I speak with people I find more issues. They were forewarning me of the inevitable ignoring I was about to receive and that they wished I could find something else. Just wanted to add some things I said there so they are all in one place.
+
+> You know there was a rule that people couldn't be banned whilst they had active complaints. The complaints had to be dealt with first. Else it just leads to people getting banned for submitting complaints.
+Obviously that leads to a leadership with complete dominion over their domain. i.e. a dictatorship.
+
+
+> ...Can you show me where it is written that I can't file incident reports? Also do you have any idea on how many incident reports are lodged against leads and/or rangers that end up with the submitting burner disappearing?
+>
+> And several times it's been mentioned that by ban was either a last resort or the inability to properly process it. Given how little I actually saw of any form of process I have to assume that it was the inability to process it that led to my getting banned in the way I did. In which case why do I have no method to appeal?
+
+
+
+
