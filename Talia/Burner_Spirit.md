@@ -91,3 +91,9 @@ Going to cut that short there. I could obviously go so much further with this...
 So, if you find yourself wondering why I refuse to let this go. It's because It's just not who I am and as I said to the second Ranger..
 
 > You do realise that my level of upset is a function of how much I care about virtual burns right? What's the standard greeting amoungst burners? Welcome home... where else do i find that in SL....
+
+---
+
+*This is hilarious, you can actually see the moment that I realise that the submit button is not there, and process I went through to get around it.... *
+
+[![Image from Gyazo](https://i.gyazo.com/efe8bd8a2da5b58c16400d140118f7ed.gif)](https://gyazo.com/efe8bd8a2da5b58c16400d140118f7ed)
