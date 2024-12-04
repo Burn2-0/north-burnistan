@@ -383,5 +383,5 @@ Obviously that leads to a leadership with complete dominion over their domain. i
 > And several times it's been mentioned that by ban was either a last resort or the inability to properly process it. Given how little I actually saw of any form of process I have to assume that it was the inability to process it that led to my getting banned in the way I did. In which case why do I have no method to appeal?
 
 
-
+And yeah the Ranger Lead is Leondra Larsson.
 
