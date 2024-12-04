@@ -24,7 +24,7 @@ Compare this to how long we were deliberating the discord linkup. Which is pract
 > On 5/12/24, you engaged in posting public attacks on an individual in the Burn2 community Discord server community chat channel which is in direct violation of our Discord community’s code of conduct, which clearly states public personal attacks and inflammatory posts are not ok.
 
 You mean my stating facts around what was very painful incident for me. An incident that I had been to numerous people complaining and warning about for the entire week prior to the actual meltdown point...?
-The incident which I believe gets covered on the rangers "Must Report" list...Which neither the ranger involved reported, or the lead ranger who I queried if It had been reported. That Lead Ranger has denied all knowledge of the event. Lucky for her eh? Has she having found out that a ranger under her neglected to report a "must report" done anything about it?
+The incident which I believe gets covered on the rangers "Must Report" list...Which neither the ranger involved reported, or the lead ranger Leondra Larsson who I queried if It had been reported. That Lead Ranger Leondra Larsson has denied all knowledge of the event. Lucky for her eh? Has she having found out that a ranger under her neglected to report a "must report" done anything about it?
 
 "Must-report situations are important and the possible ramifications of a failure to report are significant, failure to report one of these situations can result in you being dismissed from the Ranger Department. This is no joke. They’re called “must-reports” for a reason."
 -m2Danger via Ranger Manual

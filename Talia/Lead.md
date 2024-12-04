@@ -2,7 +2,7 @@
 
 ## Agenda points
 
-Wow.... So.... Let me get this straight...  15 hrs ago now.. https://gyazo.com/44eff0c499796a46708773dbb624714a And now we have an overflow of things to discuss...? I would love for Skye to share a picture of the revision history of that sheet to show how many topics of discussion there was 16hrs ago... Go on dare you...
+Wow.... So.... Let me get this straight...  15 hrs ago now.. https://gyazo.com/44eff0c499796a46708773dbb624714a And now we have an overflow of things to discuss...? I would love for iSkye Silverweb to share a picture of the revision history of that sheet to show how many topics of discussion there was 16hrs ago... Go on dare you...
 
 Currently I have a list of nearly 20 agenda points that either never made it to the list or were insufficiently dealt with.
 
@@ -16,7 +16,7 @@ Orrrr have they been fed a pack of Lies... and then not investigated because the
 ## Jack Boots
 
 I guess I don't need to say I won't be at that meeting unless This topic is the very first thing on that list..
-iSkye was online when I first started to write this message... I didn't get to "So.." . and she logged out...
+iSkye Silverweb was online when I first started to write this message... I didn't get to "So.." . and she logged out...
 I would like to hear the evidence that was presented to BM by the SECRET POLICE.....
 I would like to KNOW WHO HAS JACK BOOTS IN THEIR CLOSETS.
 They are operating without my consent... They are fabricating evidence... They are Wrongfully charging people with crimes that by their words hold the "Death Penalty"..  In a death penalty case it's not the accuser that wears the mask, The opposition needs to be accountable for taking another life...
@@ -42,7 +42,7 @@ Leo I challenge you to find more examples where you have as a ranger been of ass
 
 ## More on Responsibility
 
-That thursdays meeting Huntress had been complaining that people don't come to her to tell her things she needs to be a good lead. And iSkye backed her up on this fact.  I guess everyone has heard that "A good leader leads by example.", So if people instinctively emulate their leaders because as a lead you should follow their example.. That example surely is that if people have stuff to tell me that is important to them they should come to me with it.. likewise if they have stuff that I need that is important to me then they should come to me.  
+That thursdays meeting Huntress had been complaining that people don't come to her to tell her things she needs to be a good lead. And i backed her up on this fact.  I guess everyone has heard that "A good leader leads by example.", So if people instinctively emulate their leaders because as a lead you should follow their example.. That example surely is that if people have stuff to tell me that is important to them they should come to me with it.. likewise if they have stuff that I need that is important to me then they should come to me.  
 
 So basically the example being set is:
 > As a lead I am going to sit around and do what I want, if you want me to do a good job then you have to come to me and if you don't the responsibility for my doing a bad job is on you.
