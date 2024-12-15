@@ -10,7 +10,7 @@ Obvious these three all came from the same person. They are the only person to h
 
 ### PICK ONE: Aurora Mystica: Lights of Connection
 
-Concept:
+**Concept:
 	Inspired by the Northern Lights, this theme celebrates unity, connection, and the magic of shared experiences. Like the auroras, individual contributions blend to create a magnificent whole. The focus is on how individual creativity and energy come together to form a collective, beautiful phenomenon.
 
 Visual Style:
@@ -23,10 +23,10 @@ Activities:
 	Light-Painting Workshops: Guests use interactive tools to “paint” temporary light trails in shared spaces, contributing to a collaborative art piece.
 	Group Meditations Under Auroras: Participants gather in open areas to relax and connect beneath shimmering light displays.
 	Musical Performances Synced with Light Shows: Live music synced to dynamic light effects, creating a multisensory experience of sound and visuals.
-
+**
 ### PICK TWO: Frozen Reverie: Echoes of Fire and Ice
 
-Concept:
+**Concept:
 	A dreamlike fusion of winter’s chill and the Burn’s fiery spirit. Participants can explore the duality of fire and ice through art, builds, and performances, symbolizing contrasts like warmth in the cold, light in darkness, and life amidst stillness.
 
 Visual Style:
@@ -34,7 +34,7 @@ Visual Style:
 
 Activities:
 	Ice skating around art installations, storytelling by virtual bonfires, and “Fire vs. Ice” costume parades.
-
+**
 #### Hearth and Horizon: Finding Warmth Within
 
 Concept:
@@ -54,14 +54,14 @@ This person likes to add links only person that did.
 
 ### PICK THREE: Hellfreeze: Idioms of Impossibility
 
-Hellfreeze: Idioms of Impossibility
+**Hellfreeze: Idioms of Impossibility
 Welcome to Hellfreeze: Idioms of Impossibility, where the improbable becomes the inspiration, and the impossible ignites the flame of creativity. In this frosty underworld, where even the Devil might don a pair of skates, we invite you to explore the strange, whimsical, and surreal landscape of ""what will never be""—or so they say.
 From the ridiculous to the sublime, idioms of impossibility dare us to imagine the unimaginable. When Hell freezes over, what do you see? Do pigs sprout wings and glide gracefully through a sky heavy with snow? Does a calendar finally make space for the Thirtieth of February? Do you brave the treacherous tundra in search of hen’s teeth? Or perhaps you simply pause to marvel at the serene absurdity of a snowball surviving its impossible journey.
 Hellfreeze is an invitation to defy expectations and create worlds that twist reality into delightful knots. It's about celebrating the unthinkable and reveling in the absurd. Your camp might explore the humor and wit of these idioms, crafting whimsical sculptures or interactive installations that play with the futility of finding a needle in a haystack—or perhaps you’ll tell stories of the long-anticipated Twelfth of Never finally arriving.
 This is a realm where art, fire, and frost collide. Imagine icy landscapes that glow with the warmth of shared laughter, frozen rivers flowing with impossible dreams, and frosty air filled with the crackle of creativity. Whether you build a flying pig farm, stage a circus for herding cats, or craft the impossible geometry of a squared circle, Hellfreeze is a space for wild dreams and wondrous impossibilities.
 https://en.wikipedia.org/wiki/List_of_idioms_of_improbability<br>
 https://en.wikipedia.org/wiki/Adynaton
-
+**
 
 #### Astral Groove
 
