@@ -1,5 +1,7 @@
 # Talia's Commentary
 
+Meeting on the 12th... Minutes first noticed on the 14th. 
+
 Mostly this can be summed up with for someone what has absolutley no voice what so ever with this up comming event there is a remarkable amount I seem to have some voice in.
 
 So the most voted upon theme for the event... 
