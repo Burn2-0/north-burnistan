@@ -1,5 +1,7 @@
 # Talia's Commentary
 
+Meeting on the 8th, minutes posted on the 8th!!
+
 > \[2024/12/08 09:06\]  Leondra Larsson: 2\. We take turns.   
 >  Meetings are conducted in text.  
 >  NOTE: local chat is recorded by notetakers at meetings, and is often shared between Burn2 leads for informational purposes.   
