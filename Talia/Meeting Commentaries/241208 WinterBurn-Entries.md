@@ -12,37 +12,37 @@ Obvious these three all came from the same person. They are the only person to h
 
 **Concept:**
 
-	**Inspired by the Northern Lights, this theme celebrates unity, connection, and the magic of shared experiences. Like the auroras, individual contributions blend to create a magnificent whole. The focus is on how individual creativity and energy come together to form a collective, beautiful phenomenon.**
+**Inspired by the Northern Lights, this theme celebrates unity, connection, and the magic of shared experiences. Like the auroras, individual contributions blend to create a magnificent whole. The focus is on how individual creativity and energy come together to form a collective, beautiful phenomenon.**
 
 **Visual Style:**
 
-	**Dynamic auroras created using particle effects that light up the sky in vibrant colors.**
+**Dynamic auroras created using particle effects that light up the sky in vibrant colors.**
 
-	**Ground-level holographic art installations and glowing pathways that guide participants to community-built spaces.**
+**Ground-level holographic art installations and glowing pathways that guide participants to community-built spaces.**
  
-	**Light-emitting sculptures and interactive art pieces that respond to touch or movement, symbolizing the ripple effect of connection.**
+**Light-emitting sculptures and interactive art pieces that respond to touch or movement, symbolizing the ripple effect of connection.**
 
 **Activities:**
 
-	**Light-Painting Workshops: Guests use interactive tools to “paint” temporary light trails in shared spaces, contributing to a collaborative art piece.**
+**Light-Painting Workshops: Guests use interactive tools to “paint” temporary light trails in shared spaces, contributing to a collaborative art piece.**
 
- 	**Group Meditations Under Auroras: Participants gather in open areas to relax and connect beneath shimmering light displays.**
+**Group Meditations Under Auroras: Participants gather in open areas to relax and connect beneath shimmering light displays.**
 	
- 	**Musical Performances Synced with Light Shows: Live music synced to dynamic light effects, creating a multisensory experience of sound and visuals.**
+**Musical Performances Synced with Light Shows: Live music synced to dynamic light effects, creating a multisensory experience of sound and visuals.**
  
 ### PICK TWO: Frozen Reverie: Echoes of Fire and Ice
 
 **Concept:**
 
-	**A dreamlike fusion of winter’s chill and the Burn’s fiery spirit. Participants can explore the duality of fire and ice through art, builds, and performances, symbolizing contrasts like warmth in the cold, light in darkness, and life amidst stillness.**
+**A dreamlike fusion of winter’s chill and the Burn’s fiery spirit. Participants can explore the duality of fire and ice through art, builds, and performances, symbolizing contrasts like warmth in the cold, light in darkness, and life amidst stillness.**
 
 **Visual Style:**
 
-	**Ethereal icy landscapes with glowing fire pits, shimmering auroras, and sculptures blending frosty and fiery elements.**
+**Ethereal icy landscapes with glowing fire pits, shimmering auroras, and sculptures blending frosty and fiery elements.**
 
 **Activities:**
 
-	**Ice skating around art installations, storytelling by virtual bonfires, and “Fire vs. Ice” costume parades.**
+**Ice skating around art installations, storytelling by virtual bonfires, and “Fire vs. Ice” costume parades.**
  
 #### Hearth and Horizon: Finding Warmth Within
 
